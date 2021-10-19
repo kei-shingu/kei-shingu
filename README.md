@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kei-shingu
 - 👀 I’m interested in climbing, mounteneering.
-- 🌱 I’m currently learning piano.
+- 🌱 I’m currently learning DIY.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
